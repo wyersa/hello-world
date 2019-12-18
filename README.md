@@ -1,2 +1,9 @@
 # hello-world
-First Respository
+
+Hello Humans!!!!
+
+Another thing to learn in the wild wild universe of Nna.
+
+Stay Tuned.....
+
+!N
